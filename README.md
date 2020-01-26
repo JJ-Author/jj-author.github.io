@@ -1,1 +1,1 @@
-# jj-author.github.io
+https://jj-author.github.io
